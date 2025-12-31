@@ -7,4 +7,4 @@
 </p>
 
 
-────── ── ──  ⟢  ⚬──────────✧──────────⚬    [rentry](https://rentry.co/jankakiss) ⚬──────────✧──────────⚬ ── ──  ──────  
+────── ── ──  ⟢  ⚬──────────✧──────────⚬    [rentry](https://rentry.co/jankakiss) / [pt info](https://jankayaoi.carrd.co/) ⚬──────────✧──────────⚬ ── ──  ──────  
