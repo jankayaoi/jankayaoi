@@ -14,4 +14,4 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub><sup>and make yours beat for me too.</sup></sub>
 
-────── ── ──  ⟢  ⚬──────────✧──────────⚬    [rentry](https://rentry.co/bruisedbite) / [pt info](https://jankayaoi.carrd.co/) ⚬──────────✧──────────⚬ ── ──  ──────  
+────── ── ──  ⟢  ⚬──────────✧──────────⚬    [rentry](https://rentry.co/bruisedbite) / [pt info](https://jankayaoi.carrd.co/) / [straw](https://lovelymankira.straw.page/ ) ⚬──────────✧──────────⚬ ── ──  ──────  
