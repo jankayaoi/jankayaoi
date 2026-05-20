@@ -15,4 +15,4 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub><sup>and make yours beat for me too.</sup></sub>
 
-────── ── ──  ⟢  ⚬──────────✧──────────⚬    [rentry](https://rentry.co/bruisedbite) / [pt info](https://jankayaoi.carrd.co/)  ⚬──────────✧──────────⚬ ── ──  ──────────  
+────── ── ──  ⟢  ⚬──────────✧──────────⚬    [carrd](https://lastprinces.carrd.co/) / [pt info](https://jankayaoi.carrd.co/)  ⚬──────────✧──────────⚬ ── ──  ──────────  
