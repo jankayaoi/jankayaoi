@@ -6,6 +6,11 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<sub><sup>too lazy for a cool github woof... </sup></sub>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<video src="https://files.catbox.moe/523mxb.mov" width="320" height="240" controls></video>
+
+https://github.com/user-attachments/assets/700fb3d9-7137-46a3-96a8-466218b7b248
+
+![meow](https://files.catbox.moe/26rkc9.png)
+
+
 
 ────── ── ──  ⟢  ⚬──────────✧──────────⚬    [carrd](https://lastprinces.carrd.co/) / [pt info](https://jankayaoi.carrd.co/)  ⚬──────────✧──────────⚬ ── ──  ──────────  
